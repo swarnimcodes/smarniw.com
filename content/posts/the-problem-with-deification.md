@@ -32,7 +32,7 @@ On 20th of July, there was supposed to be a march towards the Parliment. Dipke c
 How are we giving one person that authority over a protest that affects the entire nation. 
 People with hardly any monetary backing have reached Jantar Mantar to make their voices heard,
 to disrupt sleep of the ones who think they are demigods. Giving the reins to such a crowd to a singular "saviour"
-with no strong revolutionary ideology backing his actions
+,with no strong revolutionary ideology backing his actions,
 is no different from people falling for Modi.
 
 This makes the crowd act as a tool for the messiah to enact his whims. 
@@ -46,10 +46,9 @@ Should the protests conclude when Dipke or Wangchuk wish? Or should they conclud
 Who decides what demands need to be met? Who decides the flow of the protests? 
 After the barrage of lathis and sexual assaults on protesters by the Delhi police, why is Dipke putting out lukewarm statements about 
 peacefulness and co-operation? What will we even get by cooperating with these goons? Why was Dipke not on the frontlines
-facing the lathis and protecting protesting women from harassment? Why is he distancing himself from those who fought back against the goons?
+facing the lathis and protecting protesting women from harassment? Why is he distancing himself from those who fought back?
 
 We don't just need to snatch accountability from the government but also expect better from our protests.
-And for this we need to get rid of the deification, stop looking for saviours and look things in the eye.
 
 Right now the protesters have to spend valuable energy and time just in 
 convincing the non-protesting crowd and uncles watching the news that
@@ -72,11 +71,14 @@ As slow as that sounds, that is the only sustainable method for any protest to w
 and have lasting impact after the protest is done. 
 The government recognizes this and has been thus taking steps towards sabotaging our educational systems right from
 the CBSE history books. They have been working towards sabotaging any critical thinking and the ability to raise important questions
-by keeping us in the colosseum of entertainment. They work on demonizing far-left ideals whilst normalizing and 
+by keeping us in the colosseum of entertainment. Arts and humanities are looked down upon in our society.
+They work on demonizing far-left ideals whilst normalizing and 
 promoting far-right terrorism under the garb of nationalism.
 The government realizes the value of education more than us, which is why they are so keen on sabotaging of what's left.
 
 Therein rises the need of forming unions and communities that are driven by ideals and ideologies and not just hero-worship.
+Therein rises the need for protesting with strong ideals supporting your demands.
 Citizens need to be on the same page. Governments are not rulers, they are not our monarchs. They are our service providers.
 They are answerable to the public for all of their actions. They need to know that they can't hide in their palaces
-or the palaces will be burned to dust. Their job is to be accountable or be thrown out. That their palaces are leased.
+or the palaces will be burned to dust. Their job is to be accountable or be thrown out.
+They need to know that their palaces are leased.

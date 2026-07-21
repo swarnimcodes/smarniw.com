@@ -30,9 +30,10 @@ way to make the government take accountability.
 We are very quick to put a singular face to any movement.
 On 20th of July, there was supposed to be a march towards the Parliment. Dipke called it off.
 How are we giving one person that authority over a protest that affects the entire nation. 
-People with hardly any monetary backing have reached Jantar Mantar to make their voices heard,
-to disrupt sleep of the ones who think they are demigods. Giving the reins to such a crowd to a singular "saviour"
-,with no strong revolutionary ideology backing his actions,
+People with hardly any monetary backing, from all over the country,
+have reached Jantar Mantar to make their voices heard,
+to disrupt sleep of the ones who think they are demigods. Giving the reins to such a crowd to a singular 
+"saviour", with no strong revolutionary ideology backing his actions,
 is no different from people falling for Modi.
 
 This makes the crowd act as a tool for the messiah to enact his whims. 
@@ -46,7 +47,7 @@ Should the protests conclude when Dipke or Wangchuk wish? Or should they conclud
 Who decides what demands need to be met? Who decides the flow of the protests? 
 After the barrage of lathis and sexual assaults on protesters by the Delhi police, why is Dipke putting out lukewarm statements about 
 peacefulness and co-operation? What will we even get by cooperating with these goons? Why was Dipke not on the frontlines
-facing the lathis and protecting protesting women from harassment? Why is he distancing himself from those who fought back?
+facing the lathis? Why is he distancing himself from those who fought back?
 
 We don't just need to snatch accountability from the government but also expect better from our protests.
 
@@ -62,7 +63,6 @@ even if they might be in the right.
 This again ties back to the deification of "saviours".
 Are we following Wangchuk because of his credentials?
 What if the man did not have any? Does that make the protest or the cause any less important?
-Why are we listing down his qualifications to argue with someone who wants nothing but the protest to die down?
 
 So what's the way forward?
 Unfortunately for our instant gratification demanding brains, it is strong community building. There must be proliferation of education;
@@ -70,8 +70,8 @@ proliferation of strong ideals that help us decide what's revolutionary and what
 As slow as that sounds, that is the only sustainable method for any protest to work out 
 and have lasting impact after the protest is done. 
 The government recognizes this and has been thus taking steps towards sabotaging our educational systems right from
-the CBSE history books. They have been working towards sabotaging any critical thinking and the ability to raise important questions
-by keeping us in the colosseum of entertainment. Arts and humanities are looked down upon in our society.
+the CBSE history books to exams like NEET. They have been working towards sabotaging any critical thinking and the ability to raise important questions
+by keeping us in the colosseum of entertainment. 
 They work on demonizing far-left ideals whilst normalizing and 
 promoting far-right terrorism under the garb of nationalism.
 The government realizes the value of education more than us, which is why they are so keen on sabotaging of what's left.

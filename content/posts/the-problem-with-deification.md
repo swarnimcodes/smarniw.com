@@ -1,7 +1,7 @@
 +++
 title = "The problem with deification"
 date = 2026-07-21
-updated = 2026-07-21
+updated = 2026-07-22
 [taxonomies]
 tags = ["politics", "democracy"]
 categories = ["2026"]

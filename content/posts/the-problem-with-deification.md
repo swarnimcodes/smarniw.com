@@ -34,7 +34,9 @@ People with hardly any monetary backing, from all over the country,
 have reached Jantar Mantar to make their voices heard,
 to disrupt sleep of the ones who think they are demigods. Giving the reins to such a crowd to a singular 
 "saviour", with no strong revolutionary ideology backing his actions,
-is no different from people falling for Modi.
+is no different from people falling for Modi. 
+Such leadership of protests is wasting valuable and limited energy of the working class and diffusing 
+it into friction.  
 
 This makes the crowd act as a tool for the messiah to enact his whims. 
 We become the bones and muscles of the brain. This makes any movement unstable and unsustainable, since a head can always be cut off.
@@ -65,16 +67,18 @@ Are we following Wangchuk because of his credentials?
 What if the man did not have any? Does that make the protest or the cause any less important?
 
 So what's the way forward?
-Unfortunately for our instant gratification demanding brains, it is strong community building. There must be proliferation of education;
+Unfortunately for our instant gratification demanding brains, it is strong community building
+along with suppor1ting the ongoing protests and not backing off in the face of state-violence.
+There must be proliferation of education;
 proliferation of strong ideals that help us decide what's revolutionary and what's reactionary.
 As slow as that sounds, that is the only sustainable method for any protest to work out 
 and have lasting impact after the protest is done. 
 The government recognizes this and has been thus taking steps towards sabotaging our educational systems right from
-the CBSE history books to exams like NEET. They have been working towards sabotaging any critical thinking and the ability to raise important questions
+the history textbooks to exams like NEET. They have been working towards sabotaging any critical thinking and the ability to raise important questions
 by keeping us in the colosseum of entertainment. 
-They work on demonizing left-wing ideals whilst normalizing and 
+They work extensively on demonizing left-wing ideals whilst normalizing and 
 promoting right-wing terrorism under the garb of nationalism.
-The government realizes the value of education more than us, which is why they are so keen on sabotaging of what's left.
+The government realizes the value of education more than us, which is why they are so keen on its demolition.
 
 Therein rises the need of forming unions and communities that are driven by ideals and ideologies and not just hero-worship.
 Therein rises the need for protesting with strong ideals as the basis for your demands.

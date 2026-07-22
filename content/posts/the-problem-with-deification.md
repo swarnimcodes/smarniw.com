@@ -41,7 +41,7 @@ We become the bones and muscles of the brain. This makes any movement unstable a
 Take for instance, if they jail Dipke and Wangchuk at this moment, there will be chaos and confusion in the minds of the protesters.
 Or we would either start looking for the next messiah. 
 
-It is also not far-fetched to say that Dipke himself could potentially be on the side of BJP or even worse be a liberal-centrist. 
+It is also not far-fetched to say that Dipke himself could potentially be on the side of BJP or even worse be a liberal/centrist. 
 What will we protesters do if this actually turns out to be the case?
 Should the protests conclude when Dipke or Wangchuk wish? Or should they conclude when our demands have been fairly met.
 Who decides what demands need to be met? Who decides the flow of the protests? 
@@ -53,7 +53,7 @@ We don't just need to snatch accountability from the government but also expect 
 
 Right now the protesters have to spend valuable energy and time just in 
 convincing the non-protesting crowd and uncles watching the news that
-asking accountability is not an act against the nation but for it.
+dissent and asking for accountability is not an act against the nation but for it.
 That asking our government to do better is not anti-national rather being complacent with bad governance is.
 Sold out media outlets keep running anti-protester propaganda and discrediting the heads of the protest. 
 Because they know how most Indians are. They know that people will be reluctant to join a protest 

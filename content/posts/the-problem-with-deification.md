@@ -72,12 +72,12 @@ and have lasting impact after the protest is done.
 The government recognizes this and has been thus taking steps towards sabotaging our educational systems right from
 the CBSE history books to exams like NEET. They have been working towards sabotaging any critical thinking and the ability to raise important questions
 by keeping us in the colosseum of entertainment. 
-They work on demonizing far-left ideals whilst normalizing and 
-promoting far-right terrorism under the garb of nationalism.
+They work on demonizing left-wing ideals whilst normalizing and 
+promoting right-wing terrorism under the garb of nationalism.
 The government realizes the value of education more than us, which is why they are so keen on sabotaging of what's left.
 
 Therein rises the need of forming unions and communities that are driven by ideals and ideologies and not just hero-worship.
-Therein rises the need for protesting with strong ideals supporting your demands.
+Therein rises the need for protesting with strong ideals as the basis for your demands.
 Citizens need to be on the same page. Governments are not rulers, they are not our monarchs. They are our service providers.
 They are answerable to the public for all of their actions. They need to know that they can't hide in their palaces
 or the palaces will be burned to dust. Their job is to be accountable or be thrown out.
